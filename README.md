@@ -1,1 +1,1 @@
-# Quantitative-Research---JP-Morgan-Chase
+# Quantitative Research J.P Morgan Chase
